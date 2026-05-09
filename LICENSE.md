@@ -1,4 +1,4 @@
-
+Enhance MindManager for Windows with automatic MindManager for Windows Integration | custom-icons + themes, the #1 integration. Includes custom-icons and themes for a smoother and
 
 
 
